@@ -9,7 +9,7 @@ HEY PONY TOWN PLAYER!! here's some info just for you!
 <h2>― ABOUT ME <em>!</em></h2>
 <ul>
   <li>i'm <b>cam</b> or <b>krei <em>!</em></b></li>
-  <em>――i'm 18 and i use any pronouns</em>
+  <em>――i'm 19 and i use any pronouns</em>
   <li>i have inattentive ADHD and GAD, so please be patient with me! XP</li>
   <li>you can find me anywhere on the internet as @CHALKBARDZ!</li>
 </ul>
