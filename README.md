@@ -4,7 +4,7 @@ HEY PONY TOWN PLAYER!! here's some info just for you!
   <li>feel free to int with me, whether we share interests or not!!</li>
 <em>――i don't bite, i'm just SUPER AWKWARD</em>
   
-  <em>ㅤㅤ―ALSO!! resident bloodymary and brythan int!!! please!!</em>
+  <em>ㅤㅤ―ALSO!! resident bloodymary and brythan (bryan hodukavich x ethan winters) int!!! please!!</em>
   <li>C+H and inspo is OKAY!!</li>
 ――i <em>would</em> say DO NOT COPY but i really don't care. i'm a college student with bigger things to worry about :P
 </ul>
