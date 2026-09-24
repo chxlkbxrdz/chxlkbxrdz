@@ -20,7 +20,7 @@ my interests can be found HERE! ― https://pronouns.cc/@chxlkbxrdz
 <img src="https://drive.google.com/uc?export=view&id=1I4eGa5SCBr_DMquc2ic754P13taXilvw">
 <h2>― DNI</h2>
 <ul>
-  <li>under the age of 16</li>
+  <li>under the age of 15</li>
   <li>homophobic, transphobic, ableist, racist, pedophilic, zoophilic, etc...</li>
   <li>argumentative or otherwise attracting conflict</li>
 </ul>
